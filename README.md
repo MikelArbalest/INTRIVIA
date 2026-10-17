@@ -10,3 +10,6 @@ Kesan dan pesan saya tentang INTRIVIA 2026 sangat seru karna kita sebagai mahasi
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Kesan dan pesan saya untuk cluster saya yaitu cluster 4 seru banget karna dari kakak-kakak fasilnya sangat baik dan sangat membantu ketika ada yang membuat kami bingung
+
+## Harapan Kuliah 
+bisa lulus tepat waktu, mendapat pengalaman yang cukup dan relasi
